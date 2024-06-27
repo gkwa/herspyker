@@ -1,4 +1,4 @@
-# Privacy Policy for [Your App Name]
+# Privacy Policy for herspyker
 
 Last updated: Jun 27 2024
 
